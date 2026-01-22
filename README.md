@@ -1,3 +1,7 @@
+mb gng didnt post the v4 but it now finalphasev2
+
+
+
 <img width="646" height="606" alt="image" src="https://github.com/user-attachments/assets/1d455088-9d6d-4c7f-8e14-66b16921f414" />
 
 
@@ -5,6 +9,17 @@
 
 
 
+
+
+
+
+
+
+
+
+new
+
+<img width="696" height="666" alt="image" src="https://github.com/user-attachments/assets/560261ce-b0bd-491e-bcc2-8f43ae37f87f" />
 
 
 
