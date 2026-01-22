@@ -1,3 +1,15 @@
+<img width="646" height="606" alt="image" src="https://github.com/user-attachments/assets/1d455088-9d6d-4c7f-8e14-66b16921f414" />
+
+
+
+
+
+
+
+
+
+
+
 # HyperClicker
 HyperClicker Ultra – v2.0 COMPACT ⚡
 try my new FinalphaseV1 hyperclicker.exe 
